@@ -1,2 +1,0 @@
-# snow-animation
-# snow-animation
